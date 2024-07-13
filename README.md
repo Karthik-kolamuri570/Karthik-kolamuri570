@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber security and web develoment
 - 🌱 I’m currently working on web development
 - 💞️ I’m was colabrate with MSME
-- 📫 How to reach me email @kart91801@gmail.com
+- 📫 How to reach me email @karthik.kolamuri@sasi.ac.in
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
